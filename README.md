@@ -1,4 +1,4 @@
-# [Who is GOAT]
+# Who is GOAT
 
 
 ### Background and Overview 
